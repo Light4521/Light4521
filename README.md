@@ -1,4 +1,4 @@
-# Sobre mi
+# Sobre mim
 
 - 👋 Olá, Meu nome é @Light4521
 - 👍 Meu emial de contato é bjoaopedro508@gmail.com
